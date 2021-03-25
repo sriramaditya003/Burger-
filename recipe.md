@@ -1,0 +1,1 @@
+apply mayo on the two buns and place the lettuce, now place the patty on one of the lettuces and put cheese on top, now place the other bun on the patty
